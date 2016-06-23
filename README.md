@@ -1,2 +1,2 @@
 # doswin
-really old stuff! 2002 projects - beginnings of demlinks
+really old stuff! 2002 projects - beginnings ...
